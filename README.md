@@ -13,7 +13,9 @@
 - 📫 How to reach me **kanyawee.sadubjit12@gmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/kanyawee-sadubjit-a9354b229/](https://www.linkedin.com/in/kanyawee-sadubjit-a9354b229/)
-
+  
+- 👩‍🎓 My Profile:  [https://resume-kanyawee.my.canva.site/](https://resume-kanyawee.my.canva.site/)
+  
 - ⚡ Fun fact **I think I'm a shy person.**
 
 <h3 align="left">Connect with me:</h3>
